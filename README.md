@@ -4,4 +4,4 @@ Lectures and 2022 Material Link - https://iitkgpacin-my.sharepoint.com/:f:/g/per
 
 Lectures Playlist - https://www.youtube.com/watch?v=fLC12N3HsdQ&t=0s
 
-Pro-Tip : PYQ are the most imp resources for any subject , So do them thoroughly before doing anything else 😉
+Pro-Tip : PYQ are the most imp resources for any subject , So do them thoroughly before doing anything else 
